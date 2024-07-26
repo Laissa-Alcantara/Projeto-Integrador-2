@@ -33,28 +33,38 @@ Carga horária: 2 horas.
 
 6. EXPOSIÇÃO -SEMANA DE PESQUISA E EXTENSÃO - IFAM CAMPUS EIRUNEPÉ\
 Carga horária: 40 horas.
+[Exposição Semana de Pesquisa e Extenção](Certificado_9.jpg)
 
-7. O mundo microscópico: manuseio e preparação de lâminas para estudo das células\
+
+8. O mundo microscópico: manuseio e preparação de lâminas para estudo das células\
 Carga horária: 1 horas.
 
-8. Sessão de Painéis - Jornada Técnico Científica e Mostra de Extensão\
+9. Sessão de Painéis - Jornada Técnico Científica e Mostra de Extensão\
 Carga horária: 4 horas.
+[Sessão de Painéis](Certificado_3.jpg)
 
-9. EXPOSIÇÃO - Geladeira literária, a fascinante diversidade do reino animal e jogos matemáticos\
+
+10. EXPOSIÇÃO - Geladeira literária, a fascinante diversidade do reino animal e jogos matemáticos\
 Carga horária: 3 horas.
+[Exposição](Certificado_1.jpg)
 
-10. Oficina/Workshop - Educação Sexual Para Adolescentes\
+11. Oficina/Workshop - Educação Sexual Para Adolescentes\
 Carga horária: 3 horas.
+[Oficina Educação Sexual](Certificado_2.jpg)
 
-11. Oficina/Workshop - Domine a arte da citação: Uma oficina de referências e citações em trabalhos acadêmicos\
+13. Oficina/Workshop - Domine a arte da citação: Uma oficina de referências e citações em trabalhos acadêmicos\
 Carga horária: 4 horas.
+[Oficina Domine a Arte da Citação](Certificado_4.jpg)
 
-12. Oficina/Workshop - Informática Básica\
+
+15. Oficina/Workshop - Informática Básica\
 Carga horária: 4 horas.
+[Oficina Informática Básica](Certificado_6.jpg)
 
-13. Filme - A teoria de tudo\
+
+17. Filme - A teoria de tudo\
 Carga horária: 2 horas.
 
-14. Palestra - Desenvolvimento científico e tecnológico: Um marco nas sociedades contemporâneas\
+18. Palestra - Desenvolvimento científico e tecnológico: Um marco nas sociedades contemporâneas\
 Carga horária: 3 horas.
 
